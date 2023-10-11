@@ -1,1 +1,1 @@
-<a href="t.me/jamoliddin9717">TELEGRAM</a>
+<a href="https://t.me/jamoliddin9717">TELEGRAM</a>
